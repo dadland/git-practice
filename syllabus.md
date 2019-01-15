@@ -10,4 +10,8 @@
 
 -Week 3
 
-**Instituion Contact**: [John Jay College of Criminal Justice](www.jjay.cuny.edu)
+**Instituion Contact**: [John Jay College of Criminal Justice](www.jjay.cuny.edu).
+
+-**NEW ADDITIONS**
+
+The Beginning of Activism 1970-80
